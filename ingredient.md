@@ -1,0 +1,1 @@
+Potatoes, Vegetable Oil ( Soybean Oil, Hydrogenated Soybean Oil)
